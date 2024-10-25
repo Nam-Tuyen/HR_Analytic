@@ -87,10 +87,3 @@ Những nhân viên có số năm làm việc với quản lý hiện tại th�
 **Đưa ra các chính sách hỗ trợ nhân viên có hài lòng thấp:**
 
 Đối với các nhóm nhân viên có mức độ hài lòng thấp nhưng thu nhập cao (nhân viên cốt lõi), cần cung cấp thêm các chính sách hỗ trợ tinh thần hoặc cơ hội thăng tiến để duy trì lòng trung thành của họ.
-
-
-
-
-
-
-You said:
